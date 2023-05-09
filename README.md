@@ -2,5 +2,6 @@
 
 All rights reserved by their respective authors. 
 
-By 🅹🅴🆁🅴🅼🅸🅰🆂 🅳🅴🆅. © Copyright,
+By Jeremias Dev. © Copyright,
 All rights reserved.
+
