@@ -1,4 +1,4 @@
-#                                        Copyright ©
+#                                        ᴄᴏᴘʏʀɪɢʜᴛ ©
 
 All rights reserved by their respective authors. 
 
