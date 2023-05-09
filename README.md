@@ -3,7 +3,7 @@ Welcome stranger :) as you may have seen I upload some of my codes I made to thi
 
 #                                        Copyright ©
 
-Todos los derechos de éste vídeo son reservados por su respectivo autor. 
+All rights reserved by their respective authors. 
 
-Por Jeremias Dev. © Copyright,
-Todos los derechos reservados.
+By Jeremias Dev. © Copyright,
+All rights reserved.
